@@ -11,3 +11,9 @@ Se puede imprimir de forma ludica y personal, nunca para vender  (GRACIAS por la
 
 HASTA EL DIA DE HOY (27/3/2022)
 Se han regalado 58 unidades (no cobradas)
+
+
+actualizacion.
+
+HASTA EL DIA DE HOY (8/9/2023)
+Se han regalado 3.088 unidades (no cobradas)
